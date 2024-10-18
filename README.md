@@ -1,4 +1,4 @@
-Name: M.Pranathi
+Name: Pranathi.M
 
 Register No: 212222240064
 
